@@ -1,1 +1,1 @@
-https://github.com/kira1516/ono-tebe-nado-ad
+https://github.com/username/posmotri-v-okno-ad
